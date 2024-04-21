@@ -1,4 +1,6 @@
-# advocating for yourself
+# advocating for yourself example
+
+https://www.linkedin.com/posts/marcelfriday_this-may-be-a-shot-in-the-dark-here-but-i-activity-7184601318517276673-Gq86?utm_source=share&utm_medium=member_desktop
 
 This may be a shot in the dark here but I want this job so bad that I'm going to shoot my shot here!
 
